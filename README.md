@@ -1,0 +1,1 @@
+Akif Ertek hayratıdır
